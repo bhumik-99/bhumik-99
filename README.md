@@ -3,9 +3,9 @@
 - 🌱 I’m currently learning python , C++ .
 - 📫 How to reach me-
   1. LinkedIn - Bhumik Sharma
-](https://www.linkedin.com/in/bhumik-sharma-44635931a/)
+[](https://www.linkedin.com/in/bhumik-sharma-44635931a/)
 
-  2. Instagram -  _bhumiksharma_     [](https://www.instagram.com/_bhumiksharma_/)
+  2. Instagram -  _bhumiksharma_   [](https://www.instagram.com/_bhumiksharma_/)
   
  - 😄 Pronouns: he/him
 - ⚡ Fun fact: My Life 
